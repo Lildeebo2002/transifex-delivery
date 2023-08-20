@@ -1,7 +1,7 @@
-# Contributor Covenant Code of Conduct
+ # Contributor Covenant Code of Conduct
 
 ## Our Pledge
-
+To alway's Be and live By :Love/Loyalty/Honesty/Respect/And Self Respect!!!:) # USA/WORlD WIDE STATOSHI NAKOMOTO New STATOSHID:)$#MN #LA #BABCOCK'S/UNDERWOOD Till I Die I Will Always Be herr For mine in due time my Love's,Forever Love DAD Statoshid.......... LET'S Fix this Unjust Shit or Let them hokd there piece forevermore pkease return all my familys riches and blessings from god ,so we can use it and bless the World From my soul,my every Dream to my boys and there moms statoshid will follow thru to not only make things hopefully better but to prove and get justice fir sll and my boys future back !!!! love yall and sorry to any ive disrespected slong this way were not thru so pkease forgive me Dennis louis Bsbcock jr of Linonlakes Mn 55014 yes im not afraid of life's scary thing's i hope by now im ok and if not USA you decide and help make judgement proof of assets snd proof of my freedom your decision good outcome or bad be the truth ...,
 In the interest of fostering an open and welcoming environment, we as
 contributors and maintainers pledge to making participation in our project and
 our community a harassment-free experience for everyone, regardless of age, body
@@ -32,7 +32,7 @@ Examples of unacceptable behavior by participants include:
  professional setting
 
 ## Our Responsibilities
-
+To alway's Try to If noticed anything not fair or right to hrlp thy brother or partner, or broker or who ever is invested in usa crypto dream's and market's let's help watch eAch other's asset's to keep each invested Dream or business safe from (:)))( NO Commennts at moment k sorry but im sad k lets try for all of USA and world wide tradeing system's i Do beed slot of Assistant's im lost sorry for all incovince's promise to try everything i can to nake right even if i loose it all trying sorry people.Dennis statoshid!
 Project maintainers are responsible for clarifying the standards of acceptable
 behavior and are expected to take appropriate and fair corrective action in
 response to any instances of unacceptable behavior.
@@ -53,7 +53,7 @@ representative at an online or offline event. Representation of a project may be
 further defined and clarified by project maintainers.
 
 ## Enforcement
-
+{Temp till further notice Gavin anderson and Craig Wright will be suspended and blocked from joining per my requested permission untill legal vattles and or terminated perminatly if found yonbs in fraud of my statoshi bakomoto assets snd life problem's please sll pray fir fhis vad deal }
 Instances of abusive, harassing, or otherwise unacceptable behavior may be
 reported by contacting the project team at support@transifex.com. All
 complaints will be reviewed and investigated and will result in a response that
